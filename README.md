@@ -1,6 +1,1 @@
-# TestingGitHub2
-2nd testing of github
-====================
-Repository for third try of testing github
-
-
+VimCrypt~01!²fl^=ÈªLÈe»>°'!µŒ…¨ºüká?ü²'¦©áØ“ÈÐÑŠËêÃcIŠÕ£6³;åŽÓãB2'y¤ òZÍÅàœßó¥–¿r^œÁ¤OÙÇ¯
